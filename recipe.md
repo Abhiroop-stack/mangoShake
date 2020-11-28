@@ -1,0 +1,1 @@
+Take some ripe mangoes and put in the juicer.Wait until it changes fully into a liquid. Pour it into a glass. Add some sugar if you want and put a scoop of ice cream. Your mango shake is ready.
